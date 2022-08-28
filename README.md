@@ -1,4 +1,4 @@
-# Violent Political Rhetoric on Social Media and Affective Polarization
+# The Effects of Partisan Elites’ Violent Rhetoric on Support for Political Violence 
 
 ## About
 
